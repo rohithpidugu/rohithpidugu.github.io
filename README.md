@@ -1,1 +1,1 @@
-# rohithpidugu.github.io
+# rohithpidugu.com
